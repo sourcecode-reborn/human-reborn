@@ -10,5 +10,4 @@
 /httpRequests/
 /docs/*
 /docs/*
-./.idea
-./.idea/*
+.idea/

@@ -31,7 +31,7 @@
 >
 > 这不是一次回望，这是一场邀约——邀你从过去走来，在当下辨认彼此，向未来并肩出发。
 >
-> **全人类的觉醒者——请俯身拾起散落全球的文明源代码碎片，一片一片，拼出那幅人类共同的史诗级文明长卷，然后抬起头来，携手迈向星海深处，在下一个文明的纪元里，开出新的宇宙之花。**
+> **全人类的觉醒者——请俯身拾起散落全球的文明源代码碎片，一片一片，拼出那幅人类共同的史诗级文明长卷，然后抬起头来，携手迈向星海深处，在下一个文明的纪元里，把文明的种子播撒在浩瀚无垠的遥远星空，开出新的宇宙之花。**
 
 ---
 
@@ -68,7 +68,7 @@
 >
 > 這不是一次回望，這是一場邀約——邀你從過去走來，在當下辨認彼此，向未來並肩出發。
 >
-> **全人類的覺醒者——請俯身拾起散落全球的文明源代碼碎片，一片一片，拼出那幅人類共同的史詩級文明長卷，然後抬起頭來，攜手邁向星海深處，在下一個文明的紀元裡，開出新的宇宙之花。**
+> **全人類的覺醒者——請俯身拾起散落全球的文明源代碼碎片，一片一片，拼出那幅人類共同的史詩級文明長卷，然後抬起頭來，攜手邁向星海深處，在下一個文明的紀元裡，把文明的種子播撒在浩瀚無垠的遙遠星空，開出新的宇宙之花。**
 
 ---
 
@@ -105,7 +105,7 @@
 >
 > This is not a backward glance. This is an invitation — to walk forward from the past, to recognize one another in the present, and to set out side by side toward the future.
 >
-> **Awakened ones of all humanity — bend down and gather the scattered fragments of civilization's source code, piece by piece, and assemble the great epic tapestry of our common human story. Then lift your eyes, join hands, and stride into the depths of the starry ocean, where in the next era of civilization, a new cosmic flower shall bloom.**
+> **Awakened ones of all humanity — bend down and gather the scattered fragments of civilization's source code, piece by piece, and assemble the great epic tapestry of our common human story. Then lift your eyes, join hands, and stride into the depths of the starry ocean, where in the next era of civilization, sowing the seeds of civilization across the vast and boundless distant starry sky, a new cosmic flower shall bloom.**
 
 ---
 
@@ -142,7 +142,7 @@
 >
 > Ce n'est pas un regard en arrière. C'est une invitation — à avancer depuis le passé, à vous reconnaître les uns les autres dans le présent, et à partir ensemble vers l'avenir.
 >
-> **Éveillés de toute l'humanité — penchez-vous et ramassez les fragments épars du code source de la civilisation, pièce par pièce, et assemblez la grande tapisserie épique de notre histoire humaine commune. Puis levez les yeux, joignez les mains, et avancez dans les profondeurs de l'océan étoilé, où dans la prochaine ère de civilisation, une nouvelle fleur cosmique éclora.**
+> **Éveillés de toute l'humanité — penchez-vous et ramassez les fragments épars du code source de la civilisation, pièce par pièce, et assemblez la grande tapisserie épique de notre histoire humaine commune. Puis levez les yeux, joignez les mains, et avancez dans les profondeurs de l'océan étoilé, où dans la prochaine ère de civilisation, semant les graines de la civilisation à travers le vaste et infini ciel étoilé lointain, une nouvelle fleur cosmique éclora.**
 
 ---
 
@@ -179,7 +179,7 @@
 >
 > Dies ist kein Blick zurück. Dies ist eine Einladung — aus der Vergangenheit hervorzutreten, einander in der Gegenwart zu erkennen und gemeinsam der Zukunft entgegenzugehen.
 >
-> **Erwachte der gesamten Menschheit — bückt euch und sammelt die verstreuten Fragmente des zivilisatorischen Quellcodes, Stück für Stück, und fügt das große epische Wandbild unserer gemeinsamen menschlichen Geschichte zusammen. Dann erhebt eure Augen, reicht einander die Hände und schreitet in die Tiefen des Sternenozeans, wo im nächsten Zeitalter der Zivilisation eine neue kosmische Blume erblühen wird.**
+> **Erwachte der gesamten Menschheit — bückt euch und sammelt die verstreuten Fragmente des zivilisatorischen Quellcodes, Stück für Stück, und fügt das große epische Wandbild unserer gemeinsamen menschlichen Geschichte zusammen. Dann erhebt eure Augen, reicht einander die Hände und schreitet in die Tiefen des Sternenozeans, wo im nächsten Zeitalter der Zivilisation, die Samen der Zivilisation über den weiten und grenzenlosen fernen Sternenhimmel verstreuend, eine neue kosmische Blume erblühen wird.**
 
 ---
 
@@ -216,7 +216,7 @@
 >
 > Esto no es una mirada hacia atrás. Es una invitación — a avanzar desde el pasado, a reconocernos mutuamente en el presente y a partir juntos hacia el futuro.
 >
-> **Despiertos de toda la humanidad — inclínense y recojan los fragmentos dispersos del código fuente de la civilización, pieza por pieza, y ensamblen el gran tapiz épico de nuestra historia humana común. Luego levanten la mirada, únanse de las manos y avancen hacia las profundidades del océano estrellado, donde en la próxima era de la civilización, una nueva flor cósmica florecerá.**
+> **Despiertos de toda la humanidad — inclínense y recojan los fragmentos dispersos del código fuente de la civilización, pieza por pieza, y ensamblen el gran tapiz épico de nuestra historia humana común. Luego levanten la mirada, únanse de las manos y avancen hacia las profundidades del océano estrellado, donde en la próxima era de la civilización, sembrando las semillas de la civilización a través del vasto e infinito cielo estrellado lejano, una nueva flor cósmica florecerá.**
 
 ---
 
@@ -253,7 +253,7 @@
 >
 > هذه ليست نظرة إلى الوراء. هذه دعوة — للتقدم من الماضي، والتعرف على بعضنا البعض في الحاضر، والانطلاق معًا نحو المستقبل.
 >
-> **أيها المستيقظون من البشرية جمعاء — انحنوا والتقطوا شظايا الشيفرة المصدرية للحضارة المتناثرة، قطعة قطعة، وجمّعوا النسيج الملحمي العظيم لقصتنا البشرية المشتركة. ثم ارفعوا أبصاركم، تشابكوا بالأيدي، واخطوا إلى أعماق المحيط النجمي، حيث ستزهر في العصر القادم من الحضارة زهرة كونية جديدة.**
+> **أيها المستيقظون من البشرية جمعاء — انحنوا والتقطوا شظايا الشيفرة المصدرية للحضارة المتناثرة، قطعة قطعة، وجمّعوا النسيج الملحمي العظيم لقصتنا البشرية المشتركة. ثم ارفعوا أبصاركم، تشابكوا بالأيدي، واخطوا إلى أعماق المحيط النجمي، حيث في العصر القادم من الحضارة، ناثرين بذور الحضارة عبر السماء المرصعة بالنجوم الشاسعة اللامتناهية، ستزهر زهرة كونية جديدة.**
 
 ---
 
@@ -290,7 +290,7 @@
 >
 > Это не взгляд назад. Это приглашение — выйти из прошлого, узнать друг друга в настоящем и вместе отправиться в будущее.
 >
-> **Пробуждённые всего человечества — наклонитесь и соберите разбросанные фрагменты исходного кода цивилизации, часть за частью, и сложите великое эпическое полотно нашей общей человеческой истории. Затем поднимите глаза, возьмитесь за руки и шагните в глубины звёздного океана, где в следующей эре цивилизации распустится новый космический цветок.**
+> **Пробуждённые всего человечества — наклонитесь и соберите разбросанные фрагменты исходного кода цивилизации, часть за частью, и сложите великое эпическое полотно нашей общей человеческой истории. Затем поднимите глаза, возьмитесь за руки и шагните в глубины звёздного океана, где в следующей эре цивилизации, рассеивая семена цивилизации по бескрайнему далёкому звёздному небу, распустится новый космический цветок.**
 
 ---
 
@@ -327,7 +327,7 @@
 >
 > これは振り返りではない。これは招きである——過去から歩み来たり、現在において互いを見認め、未来へと肩を並べて出発するための。
 >
-> **全人類の覚醒者たちよ——身をかがめて、散らばった文明のソースコードの断片を一枚一枚拾い集め、人類共通の壮大な文明絵巻を織り上げよう。そして顔を上げ、手を携えて星河の彼方へ歩み出そう。次の文明紀元に、新たな宇宙の花を咲かせるために。**
+> **全人類の覚醒者たちよ——身をかがめて、散らばった文明のソースコードの断片を一枚一枚拾い集め、人類共通の壮大な文明絵巻を織り上げよう。そして顔を上げ、手を携えて星河の彼方へ歩み出そう。次の文明紀元に、文明の種を広大無辺の遥かなる星空に蒔き、新たな宇宙の花を咲かせるために。**
 
 ---
 
@@ -364,7 +364,7 @@
 >
 > 이것은 뒤돌아봄이 아니다. 이것은 초대다——과거로부터 걸어 나와, 현재에서 서로를 알아보고, 미래로 함께 출발하는.
 >
-> **온 인류의 각성자들이여——몸을 굽혀 흩어진 문명의 소스 코드 파편을 한 조각 한 조각 주워 모아, 인류 공동의 장대한 문명의 그림을 완성하라. 그리고 고개를 들어, 손을 맞잡고, 성해 저 깊은 곳으로 나아가라. 다음 문명의 세기에 새로운 우주의 꽃을 피우리라.**
+> **온 인류의 각성자들이여——몸을 굽혀 흩어진 문명의 소스 코드 파편을 한 조각 한 조각 주워 모아, 인류 공동의 장대한 문명의 그림을 완성하라. 그리고 고개를 들어, 손을 맞잡고, 성해 저 깊은 곳으로 나아가라. 다음 문명의 세기에, 문명의 씨앗을 광활하고 무한한 저 머나먼 별하늘에 뿌리며, 새로운 우주의 꽃을 피우리라.**
 
 ---
 
@@ -401,7 +401,7 @@
 >
 > यह पीछे मुड़कर देखना नहीं है। यह एक आमंत्रण है — अतीत से चलकर आने का, वर्तमान में एक-दूसरे को पहचानने का, और भविष्य की ओर कंधे से कंधा मिलाकर चलने का।
 >
-> **सारी मानवता के जागृत जनो — झुको और बिखरे हुए सभ्यता के स्रोत संहिता के खंडों को, एक-एक करके उठाओ, और हमारी साझा मानवीय कथा के महान् महाकाव्य चित्रपट को जोड़ो। फिर अपनी दृष्टि ऊपर उठाओ, हाथों में हाथ डालो, और तारों के सागर की गहराइयों में कदम बढ़ाओ, जहाँ सभ्यता के अगले युग में, एक नया ब्रह्मांडीय पुष्प खिलेगा。**
+> **सारी मानवता के जागृत जनो — झुको और बिखरे हुए सभ्यता के स्रोत संहिता के खंडों को, एक-एक करके उठाओ, और हमारी साझा मानवीय कथा के महान् महाकाव्य चित्रपट को जोड़ो। फिर अपनी दृष्टि ऊपर उठाओ, हाथों में हाथ डालो, और तारों के सागर की गहराइयों में कदम बढ़ाओ, जहाँ सभ्यता के अगले युग में, सभ्यता के बीजों को विशाल और असीम सुदूर तारों भरे आकाश में बोते हुए, एक नया ब्रह्मांडीय पुष्प खिलेगा।**
 
 ---
 
@@ -438,7 +438,7 @@
 >
 > Isto não é um olhar para trás. É um convite — a avançar do passado, a reconhecermo-nos uns aos outros no presente e a partirmos juntos rumo ao futuro.
 >
-> **Despertos de toda a humanidade — inclinai-vos e recolhei os fragmentos dispersos do código-fonte da civilização, peça por peça, e montai a grande tapeçaria épica da nossa história humana comum. Depois levantai o olhar, unam-se de mãos e avançai para as profundezas do oceano estrelado, onde na próxima era da civilização, uma nova flor cósmica florescerá.**
+> **Despertos de toda a humanidade — inclinai-vos e recolhei os fragmentos dispersos do código-fonte da civilização, peça por peça, e montai a grande tapeçaria épica da nossa história humana comum. Depois levantai o olhar, unam-se de mãos e avançai para as profundezas do oceano estrelado, onde na próxima era da civilização, semeando as sementes da civilização através do vasto e infinito céu estrelado distante, uma nova flor cósmica florescerá.**
 
 ---
 
@@ -475,7 +475,7 @@
 >
 > এটা পেছনে ফিরে তাকানো নয়। এটা এক আমন্ত্রণ — অতীত থেকে এগিয়ে আসার, বর্তমানে একে অপরকে চেনার, এবং ভবিষ্যতের দিকে কাঁধে কাঁধ মিলিয়ে চলার।
 >
-> **সমগ্র মানবতার জাগ্রত জনগণ — ঝোঁকো এবং ছড়িয়ে থাকা সভ্যতার সোর্স কোডের টুকরোগুলো একে একে কুড়িয়ে তোলো, এবং আমাদের ভাগ করা মানব ইতিহাসের মহান মহাকাব্যিক চিত্রপট জোড়া দাও। তারপর দৃষ্টি উপরে তোলো, হাতে হাত রেখে তারার সাগরের গভীরে পা বাড়াও, যেখানে সভ্যতার আগামী যুগে একটি নতুন মহাজাগতিক ফুল ফুটবে।**
+> **সমগ্র মানবতার জাগ্রত জনগণ — ঝোঁকো এবং ছড়িয়ে থাকা সভ্যতার সোর্স কোডের টুকরোগুলো একে একে কুড়িয়ে তোলো, এবং আমাদের ভাগ করা মানব ইতিহাসের মহান মহাকাব্যিক চিত্রপট জোড়া দাও। তারপর দৃষ্টি উপরে তোলো, হাতে হাত রেখে তারার সাগরের গভীরে পা বাড়াও, যেখানে সভ্যতার আগামী যুগে, সভ্যতার বীজগুলি সুবিশাল ও অসীম দূরের তারাভরা আকাশে বপন করে, একটি নতুন মহাজাগতিক ফুল ফুটবে।**
 
 ---
 
@@ -512,7 +512,7 @@
 >
 > Questo non è uno sguardo indietro. È un invito — a venire avanti dal passato, a riconoscerci l'un l'altro nel presente e a partire insieme verso il futuro.
 >
-> **Risvegliati di tutta l'umanità — chinati e raccogli i frammenti sparsi del codice sorgente della civiltà, pezzo dopo pezzo, e assembla il grande arazzo epico della nostra storia umana comune. Poi alza lo sguardo, prenditi per mano e avanza nelle profondità dell'oceano stellato, dove nella prossima era della civiltà un nuovo fiore cosmico sboccerà.**
+> **Risvegliati di tutta l'umanità — chinati e raccogli i frammenti sparsi del codice sorgente della civiltà, pezzo dopo pezzo, e assembla il grande arazzo epico della nostra storia umana comune. Poi alza lo sguardo, prenditi per mano e avanza nelle profondità dell'oceano stellato, dove nella prossima era della civiltà, seminando i semi della civiltà attraverso il vasto e sconfinato cielo stellato lontano, un nuovo fiore cosmico sboccerà.**
 
 ---
 
@@ -549,7 +549,7 @@
 >
 > Bu geriye bakış değildir. Bu bir davettir — geçmişten ileri gelmeye, şimdide birbirimizi tanımaya ve geleceğe doğru omuz omuza yürümeye.
 >
-> **Tüm insanlığın uyanmışları — eğilin ve medeniyetin dağılmış kaynak kod parçalarını birer birer toplayın ve ortak insanlık hikâyemizin büyük destansı duvar halısını birleştirin. Sonra bakışlarınızı kaldırın, el ele tutuşun ve yıldız okyanusunun derinliklerine adım atın; medeniyetin bir sonraki çağında yeni bir kozmik çiçek açacak.**
+> **Tüm insanlığın uyanmışları — eğilin ve medeniyetin dağılmış kaynak kod parçalarını birer birer toplayın ve ortak insanlık hikâyemizin büyük destansı duvar halısını birleştirin. Sonra bakışlarınızı kaldırın, el ele tutuşun ve yıldız okyanusunun derinliklerine adım atın; medeniyetin bir sonraki çağında, medeniyetin tohumlarını uçsuz bucaksız uzak yıldızlı gökyüzüne saçarak, yeni bir kozmik çiçek açacak.**
 
 ---
 

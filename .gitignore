@@ -8,6 +8,9 @@
 /dataSources.local.xml
 # Editor-based HTTP Client requests
 /httpRequests/
-/docs/*
-/docs/*
+/docs/原始文件
+/docs/*.pdf
+/docs/*.docx
+/docs/*.png
+/docs/*.jpg
 .idea/

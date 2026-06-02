@@ -105,7 +105,7 @@
 >
 > This is not a backward glance. This is an invitation — to walk forward from the past, to recognize one another in the present, and to set out side by side toward the future.
 >
-> **Awakened ones of all humanity — bend down and gather the scattered fragments of civilization's source code, piece by piece, and assemble the great epic tapestry of our common human story. Then lift your eyes, join hands, and stride into the depths of the starry ocean, where in the next era of civilization, sowing the seeds of civilization across the vast and boundless distant starry sky, a new cosmic flower shall bloom.**
+> **Awakened ones of all humanity — bend down and gather the scattered fragments of civilization's source code, piece by piece, and assemble the great epic tapestry of our common human story. Then lift your eyes, join hands, and stride into the depths of the starry ocean. There, in the next era of civilization, we shall sow the seeds of civilization across the boundless distant heavens, and a new cosmic flower shall bloom.**
 
 ---
 
@@ -140,9 +140,9 @@
 >
 > Nous te le demandons — apporte le mot caché dans la tradition orale de ta famille, le symbole gravé sur la stèle de pierre de ton village natal, le fil tonal enfoui au plus profond de ta langue maternelle — et place-les dans cette mosaïque.
 >
-> Ce n'est pas un regard en arrière. C'est une invitation — à avancer depuis le passé, à vous reconnaître les uns les autres dans le présent, et à partir ensemble vers l'avenir.
+> Ce n'est pas un regard en arrière. C'est une invitation — à avancer depuis le passé, à reconnaître en l'autre un reflet de toi-même dans le présent, et à partir ensemble vers l'avenir.
 >
-> **Éveillés de toute l'humanité — penchez-vous et ramassez les fragments épars du code source de la civilisation, pièce par pièce, et assemblez la grande tapisserie épique de notre histoire humaine commune. Puis levez les yeux, joignez les mains, et avancez dans les profondeurs de l'océan étoilé, où dans la prochaine ère de civilisation, semant les graines de la civilisation à travers le vaste et infini ciel étoilé lointain, une nouvelle fleur cosmique éclora.**
+> **Éveillés de toute l'humanité — penche-toi et ramasse les fragments épars du code source de la civilisation, pièce par pièce, et assemble la grande tapisserie épique de notre histoire humaine commune. Puis lève les yeux, joins les mains, et avance dans les profondeurs de l'océan étoilé, où dans la prochaine ère de civilisation, semant les graines de la civilisation à travers le vaste et infini ciel étoilé lointain, une nouvelle fleur cosmique éclora.**
 
 ---
 
